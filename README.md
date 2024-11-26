@@ -1,0 +1,2 @@
+# bueno-chicoos
+decribe personaje
